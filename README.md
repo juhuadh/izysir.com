@@ -1,4 +1,4 @@
-# 打开新世界的大门
+# 品社共和丨热门社区聚合 · 专注资源分享
 
 ![品社共和_公众号封面首图_2019.06.27](https://www.privacypic.com/images/2019/06/27/__2019.06.271bf1a6c9802c3ea4.png)
 
@@ -79,4 +79,8 @@
 
 > 联系我们
 
-![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.27afd7e01526bac542.png)          ![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.2795e1db70a4fcc781.png)
+![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.067d17e8e9094fd426.jpg)![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.063232c5dc9a64393c.jpg)
+
+> 赏袋辣条
+
+![品社共和赞赏码_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_201906271634338e25f40d02831e14.jpg)
