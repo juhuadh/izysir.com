@@ -1,5 +1,7 @@
 # 打开新世界的大门
 
+![品社共和_公众号封面首图_2019.06.27](https://www.privacypic.com/image/QQcWz)
+
 > 墙裂推荐
 
 [i资源丨搜罗全球最新最火资源](https://www.izysir.com)
@@ -73,4 +75,8 @@
 
 > 翻墙软件
 
-暂无
+正在整理中，敬请期待！
+
+> 联系我们
+
+![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/image/Qs0CV)![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/image/QQ1MP)
