@@ -79,4 +79,4 @@
 
 > 联系我们
 
-![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.27afd7e01526bac542.png)![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.2795e1db70a4fcc781.png)
+![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.27afd7e01526bac542.png)   ![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.2795e1db70a4fcc781.png)
