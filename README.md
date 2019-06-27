@@ -83,4 +83,4 @@
 
 > 赏袋辣条
 
-![品社共和赞赏码_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_201906271634338e25f40d02831e14.jpg)
+![品社共和赞赏码_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_201906271634338e25f40d02831e14.md.jpg)
