@@ -1,6 +1,6 @@
 # 打开新世界的大门
 
-![品社共和_公众号封面首图_2019.06.27](https://www.privacypic.com/image/QQcWz)
+![品社共和_公众号封面首图_2019.06.27](https://www.privacypic.com/images/2019/06/27/__2019.06.271bf1a6c9802c3ea4.png)
 
 > 墙裂推荐
 
@@ -79,4 +79,4 @@
 
 > 联系我们
 
-![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/image/Qs0CV)![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/image/QQ1MP)
+![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.27afd7e01526bac542.png)![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.06.2795e1db70a4fcc781.png)
