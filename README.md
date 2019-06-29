@@ -3,16 +3,18 @@
 ![品社共和_公众号封面首图_2019.06.27](https://www.privacypic.com/images/2019/06/27/__2019.06.271bf1a6c9802c3ea4.png)
 
 ### （特别提醒：本站导航建议PC端访问，推荐谷歌、火狐等非国产浏览器） ###
+### 如有失效网址，请及时告知，联系方式在最下方 ###
+### 底部有惊喜 ###
 
 > 墙裂推荐
 
 [i资源丨搜罗全球最新最火资源](https://www.izysir.com)
 
-> 热门社区
+> 热门社区（表格向左滑动可以查看更多）
 
 |   网址名称   |                      永久网址（需翻墙）                      |                           免                           |                       翻                       |                          通                          |  道  |
 | :----------: | :----------------------------------------------------------: | :----------------------------------------------------: | :--------------------------------------------: | :--------------------------------------------------: | :--: |
-|   草榴社区   | [永久网址](https://www.t66y.com/index.php?u=521741&ext=94229) | [手机端专用](http://没.ml/u=521741&ext=94229)) | [①](http://没.ml/index.php?u=521741&ext=94229) | [②](http://元旦快乐.ml/index.php?u=521741&ext=94229) | [③](https://1024.fil6.tk/index.php?u=521741&ext=94229) |
+|   草榴社区   | [永久网址](https://www.t66y.com/index.php?u=521741&ext=94229) | [手机端专用](http://没.ml) | [①](http://没.ml/index.php?u=521741&ext=94229) | [②](http://元旦快乐.ml/index.php?u=521741&ext=94229) | [③](https://1024.fil6.tk/index.php?u=521741&ext=94229) |
 |    91porn    | [永久网址](91porn.com)**/**[备用网址](https://www.ebay.com/usr/91dizhi_1) |      [①](http://514.flexiblegeeks.com/index.php)       |    [②](https://mygameofthrones.space/Cazn2)    |                                                      |      |
 |    91论坛    |                             同上                             |        [①](http://f412.botkoplak.com/index.php)        |                                                |                                                      |      |
 |    91视频    |                             同上                             |         [①](https://vip3.t9k.space/index.php)          |         [②](http://a.t6k.co/index.php)         |                                                      |      |
