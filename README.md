@@ -6,23 +6,19 @@
 ### 如有失效网址，请及时告知，联系方式在最下方 ###
 ### 底部有惊喜 ###
 
-> 墙裂推荐
-
-[i资源丨搜罗全球最新最火资源](https://www.izysir.com)
-
 > 热门社区（表格向左滑动可以查看更多）
 
-|   网址名称   |                      永久网址（需翻墙）                      |                           免                           |                       翻                       |                          通                          |  道  |
-| :----------: | :----------------------------------------------------------: | :----------------------------------------------------: | :--------------------------------------------: | :--------------------------------------------------: | :--: |
-|   草榴社区   | [永久网址](https://www.t66y.com/index.php?u=521741&ext=94229) | [手机端专用](http://车.ml) | [①](http://没.ml/index.php?u=521741&ext=94229) | [②](http://元旦快乐.ml/index.php?u=521741&ext=94229) | [③](https://1024.fil6.tk/index.php?u=521741&ext=94229) |
-|    91porn    | [永久网址](91porn.com)**/**[备用网址](https://www.ebay.com/usr/91dizhi_1) |      [①](http://514.flexiblegeeks.com/index.php)       |    [②](https://mygameofthrones.space/Cazn2)    |                                                      |      |
-|    91论坛    |                             同上                             |        [①](http://f412.botkoplak.com/index.php)        |                                                |                                                      |      |
-|    91视频    |                             同上                             |         [①](https://vip3.t9k.space/index.php)          |         [②](http://a.t6k.co/index.php)         |                                                      |      |
-|  废材视频网  |          [发布页](https://www.ebay.com/usr/fcpor0)           |                [①](https://xinfcw.net/)                |                                                |                                                      |      |
-|    久久热    |          [发布页](https://www.ebay.com/usr/yi-4298)          |               [①](https://new99a4.com/)                |                                                |                                                      |      |
-| 1024精品论坛 |               [永久网址](https://1024cu.com/)                |                [①](https://1024wu.com/)                |            [②](https://1024ce.com)             |                                                      |      |
-|    YINGAV    |         [发布页](https://www.ebay.com/usr/cwbf3674)          |                [①](http://yingav1.com/)                |                                                |                                                      |      |
-|    色花堂    |      [网址发布器](http://www.huatangaoqing.com/123.zip)      |               [①](https://www.sht88.me/)               |                                                |                                                      |      |
+|   网址名称   |                      永久网址（需翻墙）                      |                      免                      |                          翻                          |                          通                          |  道  |
+| :----------: | :----------------------------------------------------------: | :------------------------------------------: | :--------------------------------------------------: | :--------------------------------------------------: | :--: |
+|   草榴社区   | [永久网址](https://www.t66y.com/index.php?u=521741&ext=94229) |          [手机端专用](http://车.ml)          | [①](http://cl.bbcb.xyz/index.php?u=521741&ext=94229) | [②](http://cl.cfbf.xyz/index.php?u=521741&ext=94229) |      |
+|    91porn    | [永久网址](91porn.com)**/**[备用网址](https://www.ebay.com/usr/91dizhi_1) | [①](http://514.flexiblegeeks.com/index.php)  |       [②](https://mygameofthrones.space/Cazn2)       |                                                      |      |
+|    91论坛    |                             同上                             | [①](https://f.wonderfulday30.live/index.php) |          [②](http://f.w23.rocks/index.php)           |                                                      |      |
+|    91视频    |                             同上                             |    [①](https://vip3.t9k.space/index.php)     |            [②](http://a.t6k.co/index.php)            |                                                      |      |
+|  废材视频网  |          [发布页](https://www.ebay.com/usr/fcpor0)           |           [①](https://xinfcw.net/)           |                                                      |                                                      |      |
+|    久久热    |          [发布页](https://www.ebay.com/usr/yi-4298)          |         [①](https://www.xin99r4.com)         |                                                      |                                                      |      |
+| 1024精品论坛 |                [永久网址](http://1024pa.com/)                |           [①](http://1024is.com/)            |                                                      |                                                      |      |
+|    YINGAV    |         [发布页](https://www.ebay.com/usr/cwbf3674)          |           [①](http://yingav1.com/)           |                                                      |                                                      |      |
+|    色花堂    |      [网址发布器](http://www.huatangaoqing.com/123.zip)      |          [①](https://www.sht88.me/)          |                                                      |                                                      |      |
 
 > 经典老站
 
