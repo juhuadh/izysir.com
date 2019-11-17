@@ -6,7 +6,7 @@
 ### 如有失效网址，请及时告知，联系方式在最下方 ###
 >免费翻墙软件（2019年11月17日亲测可用）
 
-![推广二维码](https://www.privacypic.com/image/lqKXaa)
+![](https://www.privacypic.com/images/2019/11/17/7547a6c8eeaef63db780df823ad4cd95c5a7c3bd68bc1774.jpg)
 
 > 热门社区（表格向左滑动可以查看更多）
 
