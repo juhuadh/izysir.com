@@ -6,8 +6,12 @@
 ### 如有失效网址，请及时告知，联系方式在最下方 ###
 >免费翻墙软件——旋风加速器（2019年11月17日亲测可用）
 
-安卓版：![](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg)
-IOS版：![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg)
+|    名称    |                            安卓版                            |                            IOS版                             | PC端 | Mac端  |
+| :--------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :--: | :----: |
+| 旋风加速器 | [安卓版](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) | [IOS版](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) |      |        |
+| 旋风加速器 | ![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) | ![](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) |      |        |
+|  更多VPN   |                        请拉到最后↓↓↓                         |                     不过，这个旋风加速器                     | 真的 | 良心！ |
+
 
 
 
@@ -15,7 +19,9 @@ IOS版：![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea
 
 |   网址名称   |                      永久网址（需翻墙）                      |                      免                      |                          翻                           |                         通                          |                          道                           |
 | :----------: | :----------------------------------------------------------: | :------------------------------------------: | :---------------------------------------------------: | :-------------------------------------------------: | :---------------------------------------------------: |
+|   Pornhup    |             [永久网址](https://www.pornhub.com/)             |                                              |                                                       |                                                     |                                                       |
 |   草榴社区   | [永久网址](https://www.t66y.com/index.php?u=521741&ext=94229) |        [手机端专用](http://有内鬼.ml)        | [①](https://终止交易.ml/index.php?u=521741&ext=94229) | [②](https://有内鬼.ml/index.php?u=521741&ext=94229) | [③](https://cl.bbcb.xyz/index.php?u=521741&ext=94229) |
+|   Pornhup    |             [永久网址](https://www.pornhub.com/)             |                                              |                                                       |                                                     |                                                       |
 |    91porn    | [永久网址](91porn.com)**/**[备用网址](https://www.ebay.com/usr/91dizhi_1) | [①](http://514.flexiblegeeks.com/index.php)  |       [②](https://mygameofthrones.space/Cazn2)        |                                                     |                                                       |
 |    91论坛    |                             同上                             | [①](https://f.wonderfulday30.live/index.php) |           [②](http://f.w23.rocks/index.php)           |                                                     |                                                       |
 |    91视频    |                             同上                             |    [①](https://vip3.t9k.space/index.php)     |            [②](http://a.t6k.co/index.php)             |                                                     |                                                       |
@@ -78,9 +84,20 @@ IOS版：![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea
 |   4K天堂   |         [点击进入](http://www.4ktt.com/forum.php)         |                                         |      |      |      |
 | 饭拍资源网 |           [点击进入](http://www.fanpaixiu.cc/)            |                                         |      |      |      |
 
-> 翻墙软件
+> 翻墙软件（不完全汇总）
 
-正在整理中，敬请期待！
+|     名称     |                            安卓版                            |                            IOS版                             |                             PC端                             |                            MAC端                             |                                                              |
+| :----------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | ------------------------------------------------------------ |
+|  旋风加速器  | [Android](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) | [IOS](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) |                                                              |                                                              |                                                              |
+|  旋风加速器  | ![img](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) | ![img](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) |                                                              |                                                              |                                                              |
+|     蓝灯     |      [Android](https://getlantern.org/zh_CN/index.html)      |        [IOS](https://getlantern.org/zh_CN/index.html)        |        [PC](https://getlantern.org/zh_CN/index.html)         |        [MAC](https://getlantern.org/zh_CN/index.html)        | [根](https://github.com/getlantern/lantern)                  |
+|    自由门    |     [Android](https://s3cdn.hofeel.xyz/leap2.html?i=a3)      |                                                              |        [PC](https://s3cdn.hofeel.xyz/leap2.html?i=a1)        |                                                              | [根](https://github.com/sglfree/freesky/wiki/%E8%87%AA%E7%94%B1%E9%97%A8%E6%9C%80%E6%96%B0%E7%89%88%E4%B8%8B%E8%BD%BD-%E6%97%A0%E7%95%8C%E6%B5%8F%E8%A7%88%E6%9C%80%E6%96%B0%E6%AD%A3%E5%BC%8F%E7%89%88%E4%B8%8B%E8%BD%BD-%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6%E4%B8%8B%E8%BD%BD) |
+|   无界浏览   |     [Android](https://s3cdn.hofeel.xyz/leap2.html?i=a3)      |                                                              |        [PC](https://s3cdn.hofeel.xyz/leap2.html?i=a2)        |                                                              |                                                              |
+|     赛风     |     [Android](https://s3cdn.hofeel.xyz/leap2.html?i=a4)      | [IOS](https://itunes.apple.com/us/app/psiphon/id1276263909?ls=1&mt=8) |        [PC](https://s3cdn.hofeel.xyz/leap2.html?i=a4)        |                                                              |                                                              |
+|    萤火虫    | [Android](https://raw.githubusercontent.com/cdtmirrors/yhc/master/yhc.apk) | [IOS](https://itunes.apple.com/cn/app/%E5%B0%BC%E9%A9%AC%E4%BB%A3%E7%90%86/id1260125306?mt=8) | [PC](https://raw.githubusercontent.com/cdtmirrors/yhc/master/yhc.exe) | [MAC](https://raw.githubusercontent.com/cdtmirrors/yhc/master/yhc.dmg) | [根](https://github.com/yinghuocho/firefly-proxy)            |
+|      QT      | [Android](https://github.com/QTGate/CoNETPlatform-Android/releases/download/v1.0.2/app-release.apk) |                                                              | [PC](https://github.com/QTGate/QTGate-Desktop-Client/releases) | [MAC](https://github.com/QTGate/QTGate-Desktop-Client/releases) |                                                              |
+|     XX网     |  [Android](https://github.com/XndroidDev/Xndroid/releases)   |                                                              | [PC](https://github.com/XX-net/XX-Net/blob/master/code/default/download.md) | [MAC](https://github.com/XX-net/XX-Net/blob/master/code/default/download.md) |                                                              |
+| Shardowsocks | [Android](https://github.com/shadowsocks/shadowsocks-android) |                                                              |   [PC](https://github.com/shadowsocks/shadowsocks-windows)   |                                                              | [根](https://github.com/shadowsocks)                         |
 
 > 联系我们
 
