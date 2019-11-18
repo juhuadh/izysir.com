@@ -4,9 +4,10 @@
 
 ### （特别提醒：本站导航建议PC端访问，推荐谷歌、火狐等非国产浏览器） ###
 ### 如有失效网址，请及时告知，联系方式在最下方 ###
->免费翻墙软件（2019年11月17日亲测可用）
+>免费翻墙软件——旋风加速器（2019年11月17日亲测可用）
 
-![](https://www.privacypic.com/images/2019/11/17/7547a6c8eeaef63db780df823ad4cd95c5a7c3bd68bc1774.jpg)
+安卓版：![](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg)
+IOS版：![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg)
 
 > 热门社区（表格向左滑动可以查看更多）
 
