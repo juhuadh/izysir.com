@@ -10,7 +10,7 @@
 IOS版：![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg)
 
 |  名称  |  安卓版  |  IOS版  |
-|：------：|：--------：|：--------：|
+|：------：|：------------------：|：------------------：|
 |  旋风加速器  |  [安卓版](http://www.zyjnkfs.live/redirect?code=4IQ22B9)  |  [IOS版](http://www.qdnbspf.live/LUM1LCE)  |
 
 > 热门社区（表格向左滑动可以查看更多）
