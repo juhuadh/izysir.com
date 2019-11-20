@@ -1,6 +1,6 @@
 ## 品社共和丨热门社区聚合 · 专注资源分享
 
-![品社共和_公众号封面首图_2019.06.27](https://www.privacypic.com/images/2019/06/27/__2019.06.271bf1a6c9802c3ea4.png)
+![品社共和_公众号封面首图_2019.06.27](https://images.gitee.com/uploads/images/2019/1119/015400_8ddfa982_5042777.png)
 
 （特别提醒：本站导航建议PC端访问，推荐谷歌、火狐等非国产浏览器）
 
@@ -16,8 +16,8 @@
 
 |    名称    |                            安卓版                            |                            IOS版                             | PC端 | Mac端  |
 | :--------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :--: | :----: |
-| 旋风加速器 | [安卓版](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) | [IOS版](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) |      |        |
-| 旋风加速器 | ![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) | ![](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) |      |        |
+| 旋风加速器 |   [安卓版](http://www.zyjnkfs.live/redirect?code=4IQ22B9)    |           [IOS版](http://www.dgcqbxm.live/LUM1LCE)           |      |        |
+| 旋风加速器 | ![](https://images.gitee.com/uploads/images/2019/1119/015400_cf08838d_5042777.jpeg) | ![](https://images.gitee.com/uploads/images/2019/1119/015400_19b2bd3b_5042777.jpeg) |      |        |
 |  更多VPN   |                        请拉到最后↓↓↓                         |                     不过，这个旋风加速器                     | 真的 | 良心！ |
 
 
@@ -109,7 +109,7 @@
 |     名称     |                            安卓版                            |                            IOS版                             |                             PC端                             |                            MAC端                             |                                                              |
 | :----------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | ------------------------------------------------------------ |
 |  旋风加速器  | [Android](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) | [IOS](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) |                                                              |                                                              |                                                              |
-|  旋风加速器  | ![img](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) | ![img](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) |                                                              |                                                              |                                                              |
+|  旋风加速器  | ![img](https://images.gitee.com/uploads/images/2019/1119/015400_cf08838d_5042777.jpeg) | ![img](https://images.gitee.com/uploads/images/2019/1119/015400_19b2bd3b_5042777.jpeg) |                                                              |                                                              |                                                              |
 |     蓝灯     |      [Android](https://getlantern.org/zh_CN/index.html)      |        [IOS](https://getlantern.org/zh_CN/index.html)        |        [PC](https://getlantern.org/zh_CN/index.html)         |        [MAC](https://getlantern.org/zh_CN/index.html)        | [根](https://github.com/getlantern/lantern)                  |
 |    自由门    |     [Android](https://s3cdn.hofeel.xyz/leap2.html?i=a3)      |                                                              |        [PC](https://s3cdn.hofeel.xyz/leap2.html?i=a1)        |                                                              | [根](https://github.com/sglfree/freesky/wiki/%E8%87%AA%E7%94%B1%E9%97%A8%E6%9C%80%E6%96%B0%E7%89%88%E4%B8%8B%E8%BD%BD-%E6%97%A0%E7%95%8C%E6%B5%8F%E8%A7%88%E6%9C%80%E6%96%B0%E6%AD%A3%E5%BC%8F%E7%89%88%E4%B8%8B%E8%BD%BD-%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6%E4%B8%8B%E8%BD%BD) |
 |   无界浏览   |     [Android](https://s3cdn.hofeel.xyz/leap2.html?i=a3)      |                                                              |        [PC](https://s3cdn.hofeel.xyz/leap2.html?i=a2)        |                                                              |                                                              |
@@ -123,10 +123,10 @@
 
 ------
 
-![品社共和微信公众平台_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.067d17e8e9094fd426.jpg)![品社共和微信号_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_px_2019.063232c5dc9a64393c.jpg)
+![品社共和微信公众平台_自定义px_2019.06.27](https://images.gitee.com/uploads/images/2019/1119/015400_e817878f_5042777.jpeg)![品社共和微信号_自定义px_2019.06.27](https://images.gitee.com/uploads/images/2019/1119/015401_a157621e_5042777.jpeg)
 
 #### 赏袋辣条
 
 ------
 
-![品社共和赞赏码_自定义px_2019.06.27](https://www.privacypic.com/images/2019/06/27/_201906271634338e25f40d02831e14.md.jpg)
+![品社共和赞赏码_自定义px_2019.06.27](https://images.gitee.com/uploads/images/2019/1119/015400_8ab91da3_5042777.jpeg)
